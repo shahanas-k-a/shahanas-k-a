@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @shahanas-k-a
+- 🌱 I’m currently learning computer science and engineering in KMEA engineering college
